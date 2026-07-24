@@ -121,7 +121,19 @@ alien stage
 <a href="https://rentry.co/artificiallyjustapuppet">
 ☂ artificially just a puppet
 </a>
+<div align="center">
 
+<a href="https://github.com/falsedroplets/-art-gallery">
+
+</a>
+
+<br>
+
+<a href="https://github.com/falsedroplets/-art-gallery">
+♡ enter the gallery ♡
+</a>
+
+</div>
 <br>
 
 more files coming soon...
