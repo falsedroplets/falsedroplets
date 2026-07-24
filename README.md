@@ -126,7 +126,6 @@ alien stage
 
 more files coming soon...
 
-<img src="https://YOUR-DIVIDER.png" width="100%">
 
 <a id="friends"></a>
 
