@@ -194,4 +194,4 @@ made with ♡ by
 **falsedroplets**
 
 </div>
-theme=tokyonight
+<img src="https://github-readme-stats.vercel.app/api?username=falsedroplets&theme=transparent">
