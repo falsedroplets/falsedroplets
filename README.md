@@ -16,7 +16,7 @@
 <a href="#friends">shoutouts</a> ♡
 <a href="#fictkins">fictkins</a>
 
-<br>
+<b
 
 artist ⋆ writer ⋆ professional yapper
 
