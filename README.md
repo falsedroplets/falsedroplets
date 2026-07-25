@@ -1,0 +1,180 @@
+<div align="center">
+
+# ♪ *th*ese worries and *dr*eams they're worth*le*ss 2 me ^•^ !
+
+☁ forecast pending...
+
+<img width="1200" height="677" alt="Untitled71_20260723105501" src="https://github.com/user-attachments/assets/a2eb5328-29da-4880-8fbe-582afe6e2361" />
+
+
+<br>
+
+artist ⋆ writer ⋆ professional yapper
+
+ambivert ⟡ intp  
+transmasc ⟡ bi (male pref) :3
+
+☁ currently occupied by clouds...
+
+</div>
+
+<br>
+
+<div align="center">
+
+about ♡ byi ♡ dni ♡ interests ♡ records ♡ shoutouts
+
+</div>
+
+<br>
+
+---
+
+<details>
+<summary>☁ about</summary>
+
+hii !! im zel / renryn / inumaki / neuvi ^_^
+
+artist • writer • professional yapper
+
+ambivert • intp  
+transmasc • bi (male pref)
+
+drawing • writing • oc making  
+worldbuilding • fictional characters
+
+fictkins:
+
+neuvillette • dottore  
+inumaki • higuruma  
+ivan • ego renegade boy
+
+low social battery • usually hiding in my cave  
+but i promise im nice :P
+
+</details>
+
+<br>
+
+---
+
+<details>
+<summary>☂ byi</summary>
+
+low social battery • may disappear randomly
+
+i joke around a lot • expect silly humour
+
+slow to apologize • not a people pleaser
+
+if im overwhelming • just ignore me :3
+
+iwec if we've had past problems / beef
+
+</details>
+
+<br>
+
+---
+
+<details>
+<summary>⚠ dni</summary>
+
+basic dni criteria
+
+vizpop supporters • qwel supporters
+
+</details>
+
+<br>
+
+---
+
+<details>
+<summary>☁ interests</summary>
+
+genshin impact • jujutsu kaisen
+
+honkai star rail • alien stage
+
+animal hospital • thatmob  
+outcasts (smp)
+
+whatever consumes my brain next (╥﹏╥)
+
+</details>
+
+<br>
+
+---
+
+<details>
+<summary>⌗ records</summary>
+
+# ☁ records
+
+### artificially yours
+
+> oc database
+
+<a href="https://rentry.co/artificiallyjustapuppet">
+☂ artificially just a puppet
+</a>
+
+<br>
+
+<div align="center">
+
+<a href="https://github.com/falsedroplets/-art-gallery">
+♡ enter the gallery ♡
+</a>
+
+</div>
+
+<br>
+
+### mentions
+
+<a href="https://github.com/title-town">
+☁ title-town feature
+</a>
+
+<br>
+
+more files coming soon...
+
+</details>
+
+<br>
+
+---
+
+<details>
+<summary>♡ shoutouts</summary>
+
+kasael ♡ ianthe ♡ vale
+
+chiyo ♡ mikyii ♡ xene
+
+misya ♡ dolly
+
+"thank u for staying"
+
+</details>
+
+<br>
+
+---
+
+<div align="center">
+
+♪ currently playing
+
+placing the blame — self  
+string theory — vally.exe
+
+☁ forecast :: overcast with scattered hyperfixations.
+
+made with ♡ by falsedroplets
+
+</div>
