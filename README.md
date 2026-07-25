@@ -1,5 +1,8 @@
 <div align="center">
 
+<img width="1075" height="325" alt="Untitled71_20260723103407" src="https://github.com/user-attachments/assets/2d5db6f5-8ccd-4d6e-95b6-135dde60f9f2" />
+
+
 # ♪ *th*ese worries and *dr*eams they're worth*le*ss 2 me ^•^ !
 
 ☁ forecast pending...
