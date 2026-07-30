@@ -23,6 +23,11 @@ transmasc ⟡ bi (male pref) :3
 
 <br>
 
+<img width="677" height="677" alt="Project Name 7" src="https://github.com/user-attachments/assets/f8f0019b-6660-4b16-87ff-7cae5da22b3b" />
+
+
+
+
 <div align="center">
 
 about ♡ byi ♡ dni ♡ interests ♡ records ♡ shoutouts
@@ -66,7 +71,7 @@ but i promise im nice :P
 
 low social battery • may disappear randomly
 
-i joke around a lot • expect silly humour
+i joke around a lot • suggestive / offensive humor to ppl i am comf
 
 slow to apologize • not a people pleaser
 
