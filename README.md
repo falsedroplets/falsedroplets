@@ -69,13 +69,13 @@ but i promise im nice :P
 <details>
 <summary>☂ byi</summary>
 
-low social battery • may disappear randomly
+low social battery • may disappear randomly • dni if youre heavily religious to the point that you rub it to ppls faces
 
-i joke around a lot • suggestive / offensive humor to ppl i am comf
+i joke around a lot • suggestive / offensive humor to ppl i am comf • i am diagnosed with severe depression + DID ( yes, I am diagnosed )
 
-slow to apologize • not a people pleaser
+slow to apologize • not a people pleaser • extremely dry when drained / upset
 
-if im overwhelming • just ignore me :3
+if im overwhelming • just ignore me :3 • i am considerate abt your boundaries + other people dont expect me to take it far
 
 iwec if we've had past problems / beef
 
